@@ -1,1 +1,0 @@
-# manzana-roja-medico
